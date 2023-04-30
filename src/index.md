@@ -30,7 +30,7 @@
 
 测试组成员：[LDY_绿豆蝇](https://space.bilibili.com/1495633867) [饱受bs](https://space.bilibili.com/1516890357) [我是屑114513](https://space.bilibili.com/1686810190)
 
-下载链接：[OneDrive直链](https://drive.zxpweb.eu.org/f/apid/edgeedge3.0.zip)
+下载链接：[OneDrive直链](https://download.zxpweb.eu.org/edgeedge3.0.zip)
 
 ### UltimaTale
 
@@ -44,7 +44,7 @@ AU作者：天耀TinYiu
 
 游戏作者：庄严的承诺
 
-下载链接：[OneDrive直链](https://drive.zxpweb.eu.org/f/J1fw/%E7%A9%B6%E6%9E%81%E4%BC%A0%E8%AF%B4.zip)
+下载链接：[OneDrive直链](https://download.zxpweb.eu.org/%E7%A9%B6%E6%9E%81%E4%BC%A0%E8%AF%B4.zip)
 
 ## 其他的一些内容
 
