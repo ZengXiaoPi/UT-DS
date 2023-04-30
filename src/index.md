@@ -18,6 +18,8 @@
 
 ### EdgeEdge
 
+中文名：边缘之刃
+
 曲师：[xEmber](https://space.bilibili.com/241574295)
 
 特效：[穹c啋f汾_QcCfF](https://space.bilibili.com/1438530442)
